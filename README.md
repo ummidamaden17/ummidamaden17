@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on mobile app projects that aim to solve problems, whether it's in health, sports, or education. I'm open to brainstorming and building creative solutions with other developers.
 
-📫 How to reach me: [ummidamaden@gmail.com](mailto:ummidamaden@gmail.com) or [@ummi_mdn14](https://t.me/ummi_mdn14) — always happy to chat or collaborate!
+📫 How to reach me: [ummida.maden@gmail.com](mailto:ummida.maden@gmail.com) or [@ummi_mdn14](https://t.me/ummi_mdn14) — always happy to chat or collaborate!
 
 😄 Pronouns: she/her.
 
